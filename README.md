@@ -1,1 +1,0 @@
-# minotaur470.github.io
